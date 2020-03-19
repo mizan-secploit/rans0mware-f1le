@@ -1,4 +1,4 @@
-# <b>this is virus dont see if want to need cry so <\b> 😉?
+# <>this is virus dont see if want to need cry so <> 😉?
 
 
 
@@ -21,14 +21,14 @@
                    .@ooooo@@@@@oooo@      \ //
                    @ooooO@' `@@ooo@|
                    @oooo@'   `@oooo@
-                  @ooo@'     `oooo@|     <b> MUMMY,virus</b>
+                  @ooo@'     `oooo@|     <virus> MUMMY,malware</virus>
                   @oo@@'      `@oo@|      ransomware
                   @o@@|        @@o@,           
                   @@@@:        @@o@|                -----
                   @@@@:        @@o@|          "malware
                   `@oo:        `@@@:
                   /@@@)        /@@@)
-                (@@@@/       (@@@@/          \_/ <b> virus <\b>)
+                (@@@@/       (@@@@/          \_/ <> virus <\>)
 
 
 
